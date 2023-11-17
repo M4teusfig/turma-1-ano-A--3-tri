@@ -6,5 +6,6 @@ mateus carneiro de figueiredo
      entre as melhores batatas temos a batata inglesa(batata comum)  
      batata inglesa
  ![image](https://github.com/M4teusfig/turma-1-ano-A--3-tri/assets/146738069/e7f64107-bcd5-43ed-88c4-0a9144a2f59c)
+
  batata doce
 ![image](https://github.com/M4teusfig/turma-1-ano-A--3-tri/assets/146738069/fd2564bb-cbbc-4ce3-a5a0-b7c6e5058e67)
