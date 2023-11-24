@@ -9,3 +9,4 @@ mateus carneiro de figueiredo
 
  batata doce
 ![image](https://github.com/M4teusfig/turma-1-ano-A--3-tri/assets/146738069/fd2564bb-cbbc-4ce3-a5a0-b7c6e5058e67)
+ e por ai vai uma melhor que a outra com varios tipos de preparo.
